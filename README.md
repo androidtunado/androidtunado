@@ -1,7 +1,7 @@
 ## Spotify Premium APK v8.9.84.594 Download Grátis Nova Versão Para Android 2024
 Descubra tudo sobre o Spotify Premium APK, seus recursos, vantagens e riscos de download. Veja por que é melhor optar pela versão oficial para desfrutar de música ilimitada.
 
-![maxresdefault]([https://github.com/user-attachments/assets/cc6bf443-392e-44a9-862a-5d7c87d16267](https://storage.googleapis.com/pr-newsroom-wp/1/2023/04/AppleCompetition-FTRHeader_V1-768x381.png))
+![maxresdefault](https://storage.googleapis.com/pr-newsroom-wp/1/2023/04/AppleCompetition-FTRHeader_V1-768x381.png)
 
 ## 🌈🙋‍♀️ Download: [Spotify Premium APK](https://androidtunado.com.br/spotify-premium-apk/)
 
