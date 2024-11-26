@@ -3,7 +3,7 @@ Descubra tudo sobre o Spotify Premium APK, seus recursos, vantagens e riscos de 
 
 ![maxresdefault](https://storage.googleapis.com/pr-newsroom-wp/1/2023/04/AppleCompetition-FTRHeader_V1-768x381.png)
 
-## 🌈🙋‍♀️ Download: [Spotify Premium APK](https://androidtunado.com.br/spotify-premium-apk/)
+## Download: [Spotify Premium APK](https://androidtunado.com.br/spotify-premium-apk/)
 
 ### O que é o Spotify Premium APK?
 O Spotify Premium APK é uma versão modificada do aplicativo oficial do Spotify. Essa versão não autorizada oferece acesso gratuito aos recursos do Spotify Premium, como:
